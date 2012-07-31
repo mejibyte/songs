@@ -15,7 +15,7 @@
                        A
     si en tus ojos yo veo nacer el sol 
                        E7
-    si es tan mio tu cuerpo y tu calor
+    si es tan mío tu cuerpo y tu calor
                                    A      Bm      E
     tú vivas en el mar y yo en el río 
 
